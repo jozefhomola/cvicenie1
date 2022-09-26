@@ -1,0 +1,2 @@
+# cvicenie1
+skusam
